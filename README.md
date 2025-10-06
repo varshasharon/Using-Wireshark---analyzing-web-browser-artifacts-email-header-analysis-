@@ -59,7 +59,7 @@ Captured Web Activity and Email Header Information
 
 ![WhatsApp Image 2025-10-04 at 11 25 57_6b9dfb70](https://github.com/user-attachments/assets/59dc92c1-1421-4bc4-ad36-eb7b52f1b24a)
 
-![WhatsApp Image 2025-10-04 at 11 50 13_b04fb0bb](https://github.com/user-attachments/assets/7374421c-a64e-4fa0-ac88-b22d71e3880f)
+<img width="1914" height="936" alt="image" src="https://github.com/user-attachments/assets/478d2913-bd61-473f-9b03-7b50f6e53e71" />
 
 ![WhatsApp Image 2025-10-04 at 11 54 30_9d13d2e0](https://github.com/user-attachments/assets/40b6453a-b0b6-4a6e-b8b2-f7609ecb2781)
 
